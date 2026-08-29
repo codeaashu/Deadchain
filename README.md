@@ -1,1 +1,6 @@
 <img width="1983" height="793" alt="Battlefield" src="https://github.com/user-attachments/assets/a5c50b29-4d6a-4e70-8119-29de553ede70" />
+
+---
+
+Connect here:<br>
+Website [www.aashuu.me](https://www.aashuu.me) ✦  𝕏 [@warrioraashuu](https://x.com/warrioraashuu) ✦  LinkedIn [@warrioraashuu](https://www.linkedin.com/in/warrioraashuu/)
