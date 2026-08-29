@@ -2,5 +2,5 @@
 
 ---
 
-Want to collab on this project?
+Want to collab on this project?<br>
 Connect here: [www.aashuu.me](https://www.aashuu.me) ✦  𝕏 [@warrioraashuu](https://x.com/warrioraashuu)
