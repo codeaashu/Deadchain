@@ -3,4 +3,4 @@
 ---
 
 Want to collab on this project?<br>
-Connect here: [www.aashuu.me](https://www.aashuu.me) ✦  𝕏 [@warrioraashuu](https://x.com/warrioraashuu)
+Connect here: 𝕏 [@warrioraashuu](https://x.com/warrioraashuu) or [www.aashuu.me](https://www.aashuu.me)
